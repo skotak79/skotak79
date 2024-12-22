@@ -1,1 +1,1 @@
-#skotak79
+Independent Sound Engineer, Wrocław
